@@ -23,8 +23,10 @@ I'm eager to transition into a professional role where I can apply my skills and
 I'm actively seeking mentorship, networking opportunities, and potential collaborations in the software development community. Whether you're an industry professional, fellow developer, or someone passionate about tech, I'd love to connect and explore ways we can work together or share insights.
 
 Feel free to reach out to me here on GitHub or connect with me on LinkedIn!
+[linkedIn](https://www.linkedin.com/in/justice-cupples-187289279/?trk=opento_sprofile_goalscard)
 
-You can also rach me at the following email!: spiderman
+You can also rach me at the following email!: 
+[Spiderman511801@gmail.com](mailto:spiderman51801@gmail.com)
 
 
 Thanks for stopping by, and I look forward to connecting with you! 🌟
